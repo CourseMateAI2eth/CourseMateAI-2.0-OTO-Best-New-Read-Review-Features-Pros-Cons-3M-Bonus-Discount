@@ -9,6 +9,63 @@
 <p class="" data-start="1048" data-end="1271">The digital course dream I’d been sold felt like a scam. Every “AI tool” I tried either spat out robotic garbage or required hours of tweaking that left me drained. I wanted freedom, not another job disguised as automation.</p>
 <p class="" data-start="1273" data-end="1565">Then I stumbled upon a post in an obscure marketing forum. A user raved about this new platform called <strong data-start="1376" data-end="1396">CourseMateAI 2.0</strong>—a tool that didn’t just help them create courses but handled the entire beast: creation, publishing, marketing, and scaling. Skeptical but desperate, I clicked through.</p>
 <p class="" data-start="1567" data-end="1601">And that’s where my story changed.</p>
+# 🎓 Coursemate AI 2.0 – Full Funnel Access + VIP Bonuses!
+
+## 🚀 Get All Coursemate AI 2.0 Offers Below
+
+You can grab any OTO directly — affiliate tracking is built into every link.
+
+---
+
+### 🔹 Coursemate AI 2.0 FE – Coupon Code: **CMAI5OFF**  
+Type in your browser:  
+`jvz5[dot]com/c/672499/403857`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: Coursemate AI 2.0 Pro**  
+  Type: `jvz8[dot]com/c/672499/403861`
+
+- **OTO 2: Coursemate AI 2.0 eCover Creator**  
+  Type: `jvz6[dot]com/c/672499/403865`
+
+- **OTO 3: Coursemate AI 2.0 Flipbook Creator**  
+  Type: `jvz5[dot]com/c/672499/403867`
+
+- **OTO 4: Coursemate AI 2.0 Membership Option**  
+  Type: `jvz8[dot]com/c/672499/403871`
+
+- **OTO 5: Coursemate AI 2.0 Reseller**  
+  Type: `jvz7[dot]com/c/672499/403873`
+
+---
+
+## 🎁 Check My Bonus Page  
+Full details on exclusive bonuses:  
+`williamreview[dot]com/coursemate-ai-2`
+
+---
+
+## 💥 Special Bonus Vault  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Browse here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase using any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Bonuses will be delivered within **12 hours** — confirm via email to ensure fast delivery.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At checkout, scroll to the bottom of the page and confirm:  
+**Affiliate: 672499 - William Johnson**
 
 <h2 class="" data-start="1603" data-end="1655"><strong data-start="1606" data-end="1655">The First Time I Logged Into CourseMateAI 2.0</strong></h2>
 <p class="" data-start="1657" data-end="1745">I expected another complicated dashboard. What I got felt like opening a treasure chest.</p>
@@ -145,3 +202,60 @@
 <p class="" data-start="6406" data-end="6450">Pay once. Launch forever. Build your empire.</p>
 <p class="" data-start="6452" data-end="6596">👉 <strong data-start="6455" data-end="6522">Type in CourseMateAI 2.0 now. Don’t delay. This is your moment.</strong><br data-start="6522" data-end="6525" /><strong data-start="6525" data-end="6596">Use code ‘CMAI7’ to get $7 off and start building your dream today.</strong></p>
 <p class="" data-start="6598" data-end="6630">Your future self will thank you.</p>
+# 🎓 Coursemate AI 2.0 – Full Funnel Access + VIP Bonuses!
+
+## 🚀 Get All Coursemate AI 2.0 Offers Below
+
+You can grab any OTO directly — affiliate tracking is built into every link.
+
+---
+
+### 🔹 Coursemate AI 2.0 FE – Coupon Code: **CMAI5OFF**  
+Type in your browser:  
+`jvz5[dot]com/c/672499/403857`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: Coursemate AI 2.0 Pro**  
+  Type: `jvz8[dot]com/c/672499/403861`
+
+- **OTO 2: Coursemate AI 2.0 eCover Creator**  
+  Type: `jvz6[dot]com/c/672499/403865`
+
+- **OTO 3: Coursemate AI 2.0 Flipbook Creator**  
+  Type: `jvz5[dot]com/c/672499/403867`
+
+- **OTO 4: Coursemate AI 2.0 Membership Option**  
+  Type: `jvz8[dot]com/c/672499/403871`
+
+- **OTO 5: Coursemate AI 2.0 Reseller**  
+  Type: `jvz7[dot]com/c/672499/403873`
+
+---
+
+## 🎁 Check My Bonus Page  
+Full details on exclusive bonuses:  
+`williamreview[dot]com/coursemate-ai-2`
+
+---
+
+## 💥 Special Bonus Vault  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Browse here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase using any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Bonuses will be delivered within **12 hours** — confirm via email to ensure fast delivery.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At checkout, scroll to the bottom of the page and confirm:  
+**Affiliate: 672499 - William Johnson**
